@@ -1,1 +1,1 @@
-VK_Cup_2019_First_stage
+VK Vup 2019 first stage
